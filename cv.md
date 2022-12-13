@@ -1,3 +1,5 @@
-#Kristina
+# Kristina Bolgarchuk
 
-##Contacts
+## Contacts
+##### +375447424976
+##### bolgarchukk@gmail.com
